@@ -1,2 +1,2 @@
 # Funcky-winter
-Duncky winter pijamas and more
+Funcky winter pijamas and more
